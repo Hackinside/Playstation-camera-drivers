@@ -32,4 +32,6 @@ https://www.uwe-sieber.de/usbtreeview_e.html
 https://obsproject.com/
 
 ### ManyCam
-[ManyCam Studio](https://shop.manycam.com/order/cart.php?PRODS=17728147&QTY=1&AFFILIATE=150576&COUPON=3vlry079shxw) **New Year Special Discount included:** 3vlry079shxw
+[ManyCam Studio](https://shop.manycam.com/order/cart.php?PRODS=17728147&QTY=1&AFFILIATE=150576&COUPON=3vlry079shxw) **New Year Special Discount included:**
+
+**Limited time MEGA discount valid untill 31/01/2021** [click here](https://shop.manycam.com/order/cart.php?PRODS=17728147&QTY=1&AFFILIATE=150576&COUPON=AFF35WNTSTUPRE21)
