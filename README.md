@@ -32,3 +32,4 @@ https://www.uwe-sieber.de/usbtreeview_e.html
 https://obsproject.com/
 
 ### ManyCam
+[ManyCam Studio](https://shop.manycam.com/order/checkout.php?PRODS=17728147&QTY=1&AFFILIATE=150576&AFFSRC=https%3A%2F%2Fgithub.com%2FHackinside%2FPlaystation-camera-drivers&CART=1)
